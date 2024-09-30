@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AleksandraKutz
-- 👀 I’m interested in coding, Chinese language, fantasy books and all books in general; psychology, meditation, and I'm interesting in growing as a human being.
+- 👀 I’m interested in coding, Chinese language, fantasy books and all books in general; psychology, meditation, and I am interested in growing as a human being.
 - 🌱 I’m currently learning coding to work as a data analyst.
 - 💞️ I’m looking to collaborate on everything that can help me develop and learn.
 - 📫 How to reach me aleksandra.krysiuk@gmail.com
